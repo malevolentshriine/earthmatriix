@@ -1,4 +1,5 @@
-![](https://cdn.discordapp.com/attachments/821492995109945446/1266703816711995393/yuji-itadori-fire-fist-k7nqftgoyesji56u.gif?ex=66a61d5c&is=66a4cbdc&hm=35f4edd0a5eb8f09ac0c0d873270747f8201548ed016120612ee3f92dc54c7cd&)
+![](https://steamuserimages-a.akamaihd.net/ugc/2278323044296556009/2B9ADEACA6D5242A449DA92859C7274B1D88904F/?imw=637&imh=358&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=true
+)
 
 **THIS IS STILL A WIP SO ITS GONNA BE RUSTY LOL 😭** 
 
