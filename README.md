@@ -1,4 +1,4 @@
-![](https://steamuserimages-a.akamaihd.net/ugc/2278323044296556009/2B9ADEACA6D5242A449DA92859C7274B1D88904F/?imw=637&imh=358&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=true
+![](https://64.media.tumblr.com/633ea615c7cb941bab94333e750bbec8/ac3f2b1ca314b5c9-11/s1280x1920/7248b9196138b4839ce7a84b5fac76261513430f.gif
 )
 
 **THIS IS STILL A WIP SO ITS GONNA BE RUSTY LOL 😭** 
