@@ -1,5 +1,4 @@
-![](https://64.media.tumblr.com/633ea615c7cb941bab94333e750bbec8/ac3f2b1ca314b5c9-11/s1280x1920/7248b9196138b4839ce7a84b5fac76261513430f.gif
-)
+![](https://64.media.tumblr.com/ab3476ac2c10c24e20b5f3729a224f14/f29f1aeea20c40d1-27/s640x960/40a3cb8b4ea2034ddf5f086d5d2fc6a570cbe195.gif)
 
 **THIS IS STILL A WIP SO ITS GONNA BE RUSTY LOL 😭** 
 
