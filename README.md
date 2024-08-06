@@ -10,7 +10,7 @@ UHMMM IM IN A COUPLE FANDOMS LIIKE JJK. HEH. PHIGHTING. STUDIO INVESTIGRAVE. MOR
 
 - I usually sit at phighting area because I'm on of the founders * flexes in awesomeness * OR I’M AT JJK AREA WHICH IS PRETTY RARE NOW BECAUSE THAT AREA ACTUALLY SUCKS ASSBALLS
 
-More to be added in the future ♡♡♡♡♡
+ALSO ANOTHER THING if you're gonna take inspo just ask (will most likely be no unless we know eachother) and please for gods fucking sake DONT COPY MY SKINS I know yall bitch ass lazy ass skin copiers are around tryna cop my skins its happened in the past please just get your unoriginal asses to make your own skin LEARN HOW TO GET GOOD DONT STEAL OTHER PEOPLES HARD WORK PLEAAAASSE sorry i had to get that out it pisses me off so much ok ily ❤️ 
 
 
 <!--
